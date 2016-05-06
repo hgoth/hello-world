@@ -1,3 +1,5 @@
 # hello-world
 Just another depository
-Proposed change in the code.. 
+Proposed Nb2.. 
+In the leaving room with Maxou - I just had an idea
+And maybe a bit more here
